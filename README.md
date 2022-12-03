@@ -1,1 +1,1 @@
-# Black-Friday By - Devika Nath
+# Black-Friday By - Devika Simlai
